@@ -1,0 +1,1 @@
+# TheOnlyReasonAnyoneWouldStartAnIPWarViaAResignedEmployeeIsThatTheyGetOffOnTheHumiliationOfLosing-lol
